@@ -11,5 +11,5 @@ meu nome é Gustavo de souza silva
 - gustavo.soua2024@gmail.com 
   
 - @ menoo_guu
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+  
+![](https://github.com/user-attachments/assets/9129b6a6-48a9-4397-9f06-e864713a8cc4)
